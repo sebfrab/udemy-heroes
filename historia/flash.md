@@ -1,0 +1,1 @@
+Creado por Gardner Fox y Harry Lampert, el Flash original de la Edad de Oro debuta en el Flash Comics #1 (a la derecha) en 1940. Jay Garrick es un estudiante universitario que, durante un descanso para fumar, accidentalmente derrama su experimento científico de gases de "agua pesada".
